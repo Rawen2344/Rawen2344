@@ -2,4 +2,4 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning JS
 - 💞️ I’m looking to collaborate on open source things
-- 📫 How to reach me Email: rawen.discord@gmail.com // Discord: Rawen#2344 [794601574121865216]
+- 📫 How to reach me Email: rawen.discord@gmail.com // Discord: undefined.#1997
